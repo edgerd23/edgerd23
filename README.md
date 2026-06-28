@@ -8,8 +8,8 @@
 🌱 Open Source • Continuous Learning & Available for collabolation📫.<br>*
 
 ## Also you can get in touch with me through<br>
-https://wa.me/+255654662098<br>
-https://t.me/Dayungo23<br>
+[Whatsapp}(https://wa.me/+255654662098)<br>
+[Telegram](https://t.me/Dayungo23)<br>
 
 
 
