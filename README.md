@@ -9,8 +9,6 @@
 
 ## Also you can get in touch with me through<br>
 https://wa.me/+255654662098<br>
-https://discord.gg/mmPtATQY<br>
-https://tiktok.com/@dayungo_23<br>
 https://t.me/Dayungo23<br>
 
 
